@@ -10,7 +10,7 @@
 
 - 🔭 I’m currently working on **Full Stack Development and Academic Projects & Research Work**
 
-- 🌱 I’m currently learning **Amazon Web Services(AWS),Microsoft Azure, Aviatrix(ACE),Cloud Computing**
+- 🌱 I’m currently learning and certified from **Amazon Web Services(AWS),Microsoft Azure, Aviatrix(ACE),Cloud Computing**
 
 - 👯 I’m looking to collaborate on **Open Source Projects**
 
