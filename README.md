@@ -20,7 +20,7 @@
 
 - 📄 Know about my experiences [https://bit.ly/3k3i27x](https://bit.ly/3k3i27x)
 
-- ⚡ Fun fact **I think I am slow things to learn all covered the works, late time the things are hapeened to passionate on my work to hard but it is like them to complete the whole on that day.**
+- ⚡ Fun fact **I think I am slow things to learn all covered the work, late time the things happen to be too passionate about my work and too hard but it is like to complete the whole on that day.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
